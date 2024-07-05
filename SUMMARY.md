@@ -17,7 +17,7 @@
   * [Vampire Valen Blackthorn](side-characters/vampire-valen-blackthorn.md)
 * [Sketches](sketches.md)
 * [Gods](gods/README.md)
-  * [God placeholder 1](gods/god-placeholder-1.md)
+  * [God placeholder 1](gods/page-4.md)
 * [Races](races/README.md)
   * [Essentari](races/essentari.md)
 * [Cities](cities/README.md)
