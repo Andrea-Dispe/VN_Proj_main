@@ -19,7 +19,14 @@ At 23, she met a young man her age named [placeholder-demetria-boyfriend.md](../
 
 In the year 734, [demetria.md](demetria.md "mention") and  [placeholder-demetria-boyfriend.md](../side-characters/placeholder-demetria-boyfriend.md "mention")were assigned a mission to eliminate what was believed to be a young and weak vampire in a nearby hill town. The search for the vampire was straightforward, but they soon discovered that their target, [vampire-valen-blackthorn.md](../side-characters/vampire-valen-blackthorn.md "mention"), as actually an ancient and powerful vampire. [vampire-valen-blackthorn.md](../side-characters/vampire-valen-blackthorn.md "mention")had deceived everyone into believing he was young and weak to lure victims for his sustenance, victims who wanted some fast and easy fame and glory by killing a vampire.
 
-The 2 were swiftly outmatched by[vampire-valen-blackthorn.md](../side-characters/vampire-valen-blackthorn.md "mention")and they were both bitten initiating the vampirism procedure.
+The 2 were swiftly outmatched by[vampire-valen-blackthorn.md](../side-characters/vampire-valen-blackthorn.md "mention")and they were both bitten initiating the vampirism procedure.&#x20;
+
+She wakes up and finds no one around, she knows her lover also got vampirezed but he disappeared. \
+She goes back to the church, while she goes back, she thinks and convince herself that the church, that took car eof her since she was a child, will find a way to remove the vampizirzation.&#x20;
+
+But that doesnt happen. She got rejected and attacked, she manage to escape from the church fellows who want to kill her as their dogma impose them to, an act of compassion, thanks to the [placeholder-priest-1.md](../side-characters/placeholder-priest-1.md "mention").
+
+
 
 
 
