@@ -54,3 +54,6 @@
     * [Towns](kingdoms/regions/towns/README.md)
       * [Place of interest](kingdoms/regions/towns/place-of-interest.md)
 * [Idee campate in aria con il vino e la birra](idee-campate-in-aria-con-il-vino-e-la-birra.md)
+* [Page 2](page-2.md)
+* [Events](events/README.md)
+  * [The Red Day](events/the-red-day.md)
