@@ -17,6 +17,7 @@
   * [placeholder Demetria boyfriend](side-characters/placeholder-demetria-boyfriend.md)
   * [Vampire Valen Blackthorn](side-characters/vampire-valen-blackthorn.md)
   * [Placeholder priest 1](side-characters/placeholder-priest-1.md)
+  * [Demon in Cass](side-characters/demon-in-cass.md)
 * [Sketches](sketches.md)
 * [Gods](gods/README.md)
   * [God placeholder 1](gods/page-4.md)
